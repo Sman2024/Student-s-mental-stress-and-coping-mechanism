@@ -1,1 +1,1 @@
-# Student-s-mental-stress-and-coping-mechanism
+# Student-mental-stress-and-coping-mechanism
